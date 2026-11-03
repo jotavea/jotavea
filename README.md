@@ -1,4 +1,4 @@
-# Oi, eu sou @jotavea 👋
+# Oi, eu sou João Vitor 👋
 
 ### Bem-vindo ao meu cantinho no GitHub!
 
